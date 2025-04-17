@@ -23,7 +23,7 @@
 
 ### 💬 Let's Connect:
 - [LinkedIn](https://www.linkedin.com/in/vanshika-jain-720070276/)
-- [Email](mailto:21vanshikajain2005.com)
+- [Email](mailto:21vanshikajain2005@gmail.com)
 
 Feel free to reach out for collaboration, mentorship, or tech discussions! 
 
